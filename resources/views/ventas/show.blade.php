@@ -1,0 +1,1 @@
+Aqui se vera el detalle
